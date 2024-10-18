@@ -8,4 +8,4 @@ Check out the PROFILE  and generate some harmonics in your bonnet.
 
 ALL ELSE can usually be found in the ordinary places spatters in AFRICA, KOREA, JAPAN AND GETING LOCO ON THE BLOCKCHAIN w/ MOSSY LOGZZ & BEEF ALEEF!
 
-gETTIN IN ON THE STEEM BABY IT'S IT.     Any othe renquires consult info@influencedapper for business or NYMPHAE AVERNALES at beefloggz@influencedapper.com for FAN CLUB.
+gETTIN IN ON THE STEEM BABY IT'S IT.     Any othe renquires consult info@influencedapper 
